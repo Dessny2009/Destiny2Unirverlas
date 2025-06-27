@@ -1,8 +1,7 @@
 # 🌌 Destiny 2 | Specter Menu — Precision Tools for PvE & PvP [2025 Ready]
 
 **Take full control over your Guardian's journey — Specter is a private utility for enhancing gameplay with visual, targeting, and movement capabilities. Fully updated for "The Final Shape".**
-
----
+[![dadad42g.jpg](https://i.postimg.cc/c47y8dMn/dadad42g.jpg)](https://postimg.cc/TpPHzMsd)---
 
 ## 🚀 Core Features
 
@@ -69,3 +68,9 @@
 ## 🔍 Related Tags (SEO Optimized)
 
 `destiny 2 menu, destiny 2 visuals, destiny 2 enhancement, destiny 2 overlay, destiny 2 precision tool, destiny 2 pve mod, destiny 2 targeting utility, destiny 2 esp utility, destiny 2 smooth aim, destiny 2 visual features, destiny 2 no recoil setup, destiny 2 bypass overlay, destiny 2 mod menu tools`
+
+
+## My contact:
+Discord: @gg40vv
+
+## Star My Topics!
